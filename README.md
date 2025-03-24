@@ -1,0 +1,3 @@
+# Tom-s_Life
+Tom in Vietnamese means shrimp. This github will mark her molting period. This is where Tom share anything about her life and hobbies: program, crochet, play guitar, draw, languages,...
+Xinchao mấy bà nội Việt Nam, tôi tên Tôm. Đây sẽ là nơi tôi chia sẻ về cột sống và 1 vài điều thú dzj kkk
